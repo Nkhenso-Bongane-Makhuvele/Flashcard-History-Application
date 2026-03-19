@@ -2,7 +2,7 @@
 
 ## Author
 
-Nkhenso Bongane Duma
+Nkhenso Bongane Makhuvele
 
 ---
 
